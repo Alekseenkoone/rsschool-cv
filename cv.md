@@ -1,4 +1,6 @@
-# Artem Alekseenko  
+![photo](cvphoto.jpg)  
+
+  # Artem Alekseenko  
 
 ***gsm/telegram: +37544700669 mail:alekseenkopoker@gmail.com  
 Republic of Belarus. Mogilev.***  
