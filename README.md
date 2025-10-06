@@ -1,2 +1,1 @@
-# rsschool-cv
-public repository rsschool
+https://alekseenkoone.github.io/rsschool-cv/cv
